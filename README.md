@@ -1,1 +1,1 @@
-# special-journey
+JYak is a vibrant and enthusiastic youngman in his late 30s who just discovered his latent talent and passion for technology. In his bit to catchup with the trend and make significant contribution to the Tech World, he is looking to build a roburst mentor and mentee relationship in the idustry.# special-journey
